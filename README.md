@@ -2,7 +2,7 @@
 - 👀 I’m interested in Basketball, Music, Robotics
 - 🌱 I’m currently learning C++ and Python
 - 💞️ I’m looking to collaborate on Vex Robotics
-- 📫 How to reach me - instagram (sai.2.fly) - Email (satyank.kanugula.11@gmail.com) - Discord (sai)
+- 📫 How to reach me - instagram (sai.2.fly) - Email (satyank.kanugula.11@gmail.com) - Discord (sussysai)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: idek lol
 
